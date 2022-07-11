@@ -8,6 +8,6 @@
 
 **:arrow_double_down: [macOS 版本.dmg](https://lets-contact.onelink.me/0dzS/ec04g6tl)**
 
-**:globe_with_meridians: [访问官方网站](https://lets-contact.onelink.me/0dzS/kf8su4wr)** 
+**:globe_with_meridians: [访问官方网站](https://yinhe-contact.oickrpg.cn)** 
 
 ###
