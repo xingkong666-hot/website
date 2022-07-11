@@ -12,7 +12,7 @@
 
 **:arrow_double_down: [iOS 用户下载教程](https://lets-contact.onelink.me/0dzS/3my1vynb)** 
 
-#### :arrow_double_down: [iOS 版本链接](https://appshare.onelink.me/7uiT/33e7470c)
+**:arrow_double_down: [iOS 版本链接](https://appshare.onelink.me/7uiT/33e7470c)**
 
 **:arrow_double_down: [Android 版本.apk](http://appshare.peipeiyou.com/8qOF/dnmul6gi)**
 
