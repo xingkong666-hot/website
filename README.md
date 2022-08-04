@@ -16,7 +16,7 @@
 
 **:arrow_double_down: [Android 版本.apk](http://appshare.peipeiyou.com/8qOF/dnmul6gi)**
 
-**:globe_with_meridians: [访问官方网站](http://appshare.peipeiyou.com/8qOF/cvdgcw9v)** 
+**:globe_with_meridians: [访问官方网站](http://appshare.xknsk.com)** 
 
 ###
 ---
