@@ -10,7 +10,7 @@
 - - - -
 #### 各平台安装包下载（请在浏览器中打开）
 
-**:arrow_double_down: [iOS 用户下载教程](https://lets-contact.onelink.me/0dzS/3my1vynb)** 
+**:arrow_double_down: [iOS 用户下载教程](http://xk-contact.xknsk.com/ios_course.html)** 
 
 **:arrow_double_down: [iOS 版本链接 (暂未上架)](#)**
 
