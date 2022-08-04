@@ -14,7 +14,7 @@
 
 **:arrow_double_down: [iOS 版本链接 (暂未上架)](#)**
 
-**:arrow_double_down: [Android 版本.apk](http://appshare.peipeiyou.com/8qOF/dnmul6gi)**
+**:arrow_double_down: [Android 版本.apk](http://appshare.xknsk.com/apk/yhvpn-latest.apk)**
 
 **:globe_with_meridians: [访问官方网站](http://appshare.xknsk.com)** 
 
