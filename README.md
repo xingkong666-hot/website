@@ -16,7 +16,7 @@
 
 **:arrow_double_down: [Android 版本.apk](http://appshare.xknsk.com/apk/yhvpn-latest.apk)**
 
-**:globe_with_meridians: [访问官方网站](http://appshare.xknsk.com)** 
+**:globe_with_meridians: [访问官方网站](http://appshare.xkvpn.top)** 
 
 ###
 ---
