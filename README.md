@@ -12,7 +12,7 @@
 
 **:arrow_double_down: [iOS 用户下载教程](http://xk-contact.xknsk.com/ios_course.html)** 
 
-**:arrow_double_down: [iOS 版本链接 (暂未上架)](#)**
+**:arrow_double_down: [iOS 版本链接](#)**
 
 **:arrow_double_down: [Android 版本.apk](http://appshare.xknsk.com/apk/yhvpn-latest.apk)**
 
